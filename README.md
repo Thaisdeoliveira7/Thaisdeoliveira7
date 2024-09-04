@@ -13,5 +13,4 @@ meu nome é Aline Thaís
   00001106265713sp@al.educacao.sp.gov.br
 
 
-
-  ![](https://tenor.com/bvfwc.gif)
+  ![](https://tenor.com/pt-BR/view/borboletas-butterflies-beautiful-fly-gif-15280783)
